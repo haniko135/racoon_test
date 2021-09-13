@@ -1,3 +1,3 @@
 # racoon_test
 
-Gay-Party
+join to Gay-Party
